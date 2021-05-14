@@ -1,0 +1,1 @@
+1/2 cup molasses 1/4 cup brown sugar 1/2 teaspoon baking soda 1 teaspoon ground ginger 3/4 teaspoon ground cinnamon 6 cups hot brewed coffee 1 cup half-and-half cream 1 teaspoon ground cloves 1 1/2 cups sweetened whipped cream
